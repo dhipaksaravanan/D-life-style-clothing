@@ -1,1 +1,0 @@
-# D-life-style-clothing
